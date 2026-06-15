@@ -179,4 +179,4 @@ customer-shopping-behavior/
 
 ## 🤝 Connect
 
-Feel free to reach out or connect on [LinkedIn](https://linkedin.com/in/your-profile) if you have questions or feedback!
+Feel free to reach out or connect on [LinkedIn](www.linkedin.com/in/arifhussainsyed) if you have questions or feedback!
